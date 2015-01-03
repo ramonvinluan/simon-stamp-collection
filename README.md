@@ -3,4 +3,4 @@ ___
 
 #About Simon
 
-Stuff about Simon's Stamps here...
+New York Tmes Raves this is the best stamp collection of the ages!
