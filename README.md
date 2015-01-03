@@ -3,6 +3,6 @@ ___
 
 #About Simon's Stamps
 
-Simon has been collecting stamps since 1981. He has a wide variety of expensive and exhaustive Chinese stamps.
+Simon has been collecting stamps since 1981. He has a wide variety of expensive and exhaustive Japanese stamps.
 
-New York Tmes Raves this is the best stamp collection of the ages!
+New York Tmes raves this is the best stamp collection of the ages!
